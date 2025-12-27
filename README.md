@@ -25,7 +25,7 @@ I love bridging the gap between hardware and software to build smart, autonomous
 ---
 
 ### 📫 Let's Connect!
-- 💼 [LinkedIn](www.linkedin.com/in/nada-ben-farhat21)
+- 💼 [LinkedIn](https://tn.linkedin.com/in/nada-ben-farhat21)
 - 📧 nadafarhat396@gmail.com
 
 ---
